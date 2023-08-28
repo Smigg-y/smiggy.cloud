@@ -1,1 +1,1 @@
-# smiggy.cloud
+# [smiggy.cloud](https://smiggy.cloud)
